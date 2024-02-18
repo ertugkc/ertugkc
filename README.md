@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm on Github since 18.02.2023 and this is a special page that will be full of masterpiece.
 
 <!--
 **ertugkc/ertugkc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
